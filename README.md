@@ -116,4 +116,4 @@ Research                   Industry Reports · Competitor Filings · Primary Mar
 ---
 
 *Project by Soham Pawar · Final Year Engineering Student · April 2026*
-*Prepared as a consulting portfolio piece for MBA and strategy consulting recruitment*
+*Prepared as a consulting portfolio piece for  strategy consulting recruitment*
